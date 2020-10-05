@@ -1,5 +1,5 @@
 ### Hola soy Fran 👋
-![](http://davidmmasters.com/wp-content/uploads/2018/04/trauma-inspired-programming.gif)
+![](http://davidmmasters.com/wp-content/uploads/2018/04/trauma-inspired-programming.gif)  
 :mortar_board: Estudiante de DAW en Centre d'estudis Politècnics 
 
 
